@@ -21,8 +21,7 @@
 ## About me
 
 Contact me :calling: :
-https://github.com/mreginal
-mreginalucena@gmail.com
+https://github.com/mreginal || mreginalucena@gmail.com
 
 - Thanks for visiting.
 
