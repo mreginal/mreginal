@@ -20,8 +20,9 @@
 
 ## About me
 
-Contact me :calling: : https://github.com/mreginal
-
+Contact me :calling: :
+https://github.com/mreginal
+mreginalucena@gmail.com
 
 - Thanks for visiting.
 
